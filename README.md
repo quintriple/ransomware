@@ -1,0 +1,2 @@
+# ransomware
+THIS IS ILLEGAL DO NOT RUN
